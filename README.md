@@ -1,4 +1,4 @@
-SatuSuara™ – Suara Rakyat, Onboarding Bermakna
+1Suara™ – Suara Rakyat, Onboarding Bermakna
 "Kalau suara boleh jadi memo... maka onboarding vendor bermula dari nada rakyat."
 
 🧠 Fungsi Utama:
