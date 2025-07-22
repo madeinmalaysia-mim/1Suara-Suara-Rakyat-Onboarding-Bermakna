@@ -11,4 +11,4 @@
 🔁 Auto-sync dengan Reels & pitch onboarding
 
 💬 Punchline:
-“Semua suara ada nilai. Di SatuSuara™, onboarding bukan sekadar input — ia jadi inspirasi vendor rakyat!”
+“Semua suara ada nilai. Di 1Suara™, onboarding bukan sekadar input — ia jadi inspirasi vendor rakyat!”
